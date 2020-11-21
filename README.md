@@ -1,1 +1,0 @@
-# tulebaeva.github.io
